@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on open source outreach and educational projects!
 - 📫 How to reach me:  on LinkedIn
 - 😄 Pronouns: she/her/hers
-- ⚡ Fun fact: I graduated with mt Bachelors in Spring 24' 👩🏾‍🎓
+- ⚡ Fun fact: I graduated with my Bachelors in Spring 24' 👩🏾‍🎓
 
 <!---
 MaliyahAdams/MaliyahAdams is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
