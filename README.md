@@ -5,6 +5,7 @@
 - 📫 How to reach me:  on LinkedIn
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I graduated with my Bachelors in Spring 24' 👩🏾‍🎓
+- 👩🏾‍🚀 I am a Astronomy and Astrophysics Master's Student at ASU!! #GoDevils
 
 <!---
 MaliyahAdams/MaliyahAdams is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
